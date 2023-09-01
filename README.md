@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **saswat.soa@gmail.com**
 
-- ⚡ Fun fact **I am a Esports athlete**
+- ⚡ Fun fact **I am an Esports athlete**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
